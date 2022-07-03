@@ -10,6 +10,10 @@ Omori
 
 MR TRANS (Mr trance.)
 
+PRNS PAGE:: https://en.pronouns.page/@Nokio
+
+OC REF!!! (OUTDATED...) :: https://gamejolt.com/p/whats-up-guys-quandale-dingle-here-its-been-a-year-daddy-7hr63mru
+
 D0 NOT REPOST MY ART!!!
 
 FORMER FURRY LOLOLOLOL
